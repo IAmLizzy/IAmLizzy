@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Lizzy, the red, nice Lizard! ^w^
+- 👀 I’m interested in osu!, music, specifically everything around Dubstep and Riddim Dubstep, and of course the LGBTQ+ and Furry Community! ^w^
+- 🌱 I’m currently a beginner Music Producer!
+- 💞️ I can't really code (yet) but I'm happy to be here!
+- 📫 You can contact me via PrinceLizzyTheLizard@gmail.com, or Prince Lizzy <3#4713 @ Discord!
